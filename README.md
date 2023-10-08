@@ -17,13 +17,12 @@
 
 ### 单视频播放收藏
 [没有防备](https://worldbei.com/vodplay/81235-1-1.html)
-｜[打工修理：](https://worldbei.com/vodplay/11678-1-1.html)
+｜[打工修理](https://worldbei.com/vodplay/11678-1-1.html)
 ｜[模特外遇](https://worldbei.com/vodplay/87025-1-1.html)
 ｜[出租](https://worldbei.com/vodplay/87122-1-1.html)
 ｜[松下紗](https://www.tmnau.com/vodplay/204631-1-1.html)
 ｜[xx](#主页地址收藏定期删除)
-### 下面直接点击播放打开后收藏
-无广告办法
+### 无广告点击播放打开后收藏
 [打工修理：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20230804/ZjRjYmFjND/093820/720/hls/encrypt/index.m3u8)
 ｜[模特外遇：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20231003/Y2RlMTNlZj/165407/720/hls/encrypt/index.m3u8)
 ｜[出租：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20231003/ZjQ1YjMzYm/165407/720/hls/encrypt/index.m3u8)
