@@ -26,6 +26,9 @@
 
 出租：https://m3u8play.com/?play=https://video.zmwbf.com/20231003/ZjQ1YjMzYm/165407/720/hls/encrypt/index.m3u8
 
+### 图片收藏
+写真图：https://xasia.pics
+
 工具1：http://tool.pfan.cn/m3u8/
 工具2：https://anym3u8player.com/
 工具3：http://tool.liumingye.cn/m3u8/
