@@ -1,7 +1,10 @@
 ### 主页地址收藏，定期删除
-有广告，链接地址1：https://worldbei.com/vodsearch/-------------.html
+进入后，自行搜索名字
+链接地址1：https://worldbei.com/vodsearch/-------------.html
 
-有广告，链接地址2：https://www.tmnau.com/vodsearch/-------------.html
+链接地址2：https://www.tmnau.com/vodsearch/-------------.html
+
+链接地址2：https://www.srwwu.lol/?s=list-read-id-1.html
 
 ### 下面直接点击播放打开后收藏，定期删除
 无广告办法
