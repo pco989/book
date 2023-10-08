@@ -7,6 +7,8 @@
 
 链接地址3：https://www.srwwu.lol/?s=list-read-id-1.html
 
+[地址1点我](https://worldbei.com/vodsearch/-------------.html)｜[地址2点我](https://www.tmnau.com/vodsearch/-------------.html)｜[地址3点我](https://www.srwwu.lol/?s=list-read-id-1.html)
+
 ### 单视频播放收藏
 没有防备：https://worldbei.com/vodplay/11678-1-1.html
 
@@ -20,11 +22,8 @@
 
 ### 下面直接点击播放打开后收藏，定期删除
 无广告办法
-打工修理：https://m3u8play.com/?play=https://video.zmwbf.com/20230804/ZjRjYmFjND/093820/720/hls/encrypt/index.m3u8
+[打工修理：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20230804/ZjRjYmFjND/093820/720/hls/encrypt/index.m3u8)｜[模特外遇：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20231003/Y2RlMTNlZj/165407/720/hls/encrypt/index.m3u8)｜[出租：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20231003/ZjQ1YjMzYm/165407/720/hls/encrypt/index.m3u8)
 
-模特外遇：https://m3u8play.com/?play=https://video.zmwbf.com/20231003/Y2RlMTNlZj/165407/720/hls/encrypt/index.m3u8
-
-出租：https://m3u8play.com/?play=https://video.zmwbf.com/20231003/ZjQ1YjMzYm/165407/720/hls/encrypt/index.m3u8
 
 ### 图片收藏
 写真图：https://xasia.pics
