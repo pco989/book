@@ -21,7 +21,7 @@
 ｜[模特外遇](https://worldbei.com/vodplay/87025-1-1.html)
 ｜[出租](https://worldbei.com/vodplay/87122-1-1.html)
 ｜[松下紗](https://www.tmnau.com/vodplay/204631-1-1.html)
-｜[xx](xxxl)
+｜[xx](#主页地址收藏定期删除)
 ### 下面直接点击播放打开后收藏
 无广告办法
 [打工修理：点我](https://m3u8play.com/?play=https://video.zmwbf.com/20230804/ZjRjYmFjND/093820/720/hls/encrypt/index.m3u8)
@@ -30,11 +30,11 @@
 
 ### 图片收藏
 [写真图](https://xasia.pics)｜
-｜[xx](xxxl)
+｜[xx](#主页地址收藏定期删除)
 
 
 [转播工具1](http://tool.pfan.cn/m3u8/)
 ｜[转播工具2](https://anym3u8player.com/)
 ｜[转播工具3](http://tool.liumingye.cn/m3u8/)
-｜[xx](xxxl)
+｜[xx](#主页地址收藏定期删除)
 
